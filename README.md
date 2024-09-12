@@ -1,3 +1,1 @@
-![image](https://what-if.xkcd.com/imgs/a/1/04.png)
-
-![image](https://what-if.xkcd.com/imgs/a/1/05.png)
+Ooooh you wanna give me an internship SO bad
