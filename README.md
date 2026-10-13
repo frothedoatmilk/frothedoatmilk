@@ -11,5 +11,6 @@ Let's keep this short and sweet:
 - 🐧 Constantly trying new things in OS land (currently pondering a jump to openSUSE)
 
 ### Things that I haven't yet put on GitHub
-- 📚 Reading so many things (currently: finishing the works of [John Scalzi](https://whatever.scalzi.com/))
+- 📚 Reading so many things (currently: Nation by Terry Pratchett)
 - 🍳 Trying so, so hard to not have things stick on stainless steel
+- 📷 Aspiring nature photographer (may come to GH pages...)
